@@ -9,7 +9,7 @@
 
 
 # [priviet 2.0 dt rafis podkrecony edit](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=68893bf8&is=6887ea78&hm=d7c42062cd066637fb0778856a7863c1ed6bb7fe57f712ba599fc1ee7f4222e8&)
-![image](https://user-images.githubusercontent.com/37017946/180619783-38aa2952-faad-4875-a3e6-941bf2b93d09.png)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=68893bf8&is=6887ea78&hm=d7c42062cd066637fb0778856a7863c1ed6bb7fe57f712ba599fc1ee7f4222e8&)
 
 
 # [priviet 2.0 dt](https://mega.nz/file/tOxTgTrQ#qk7939zxG2bQOmmd2nvKC9rWtK57YNaLq_JNKTJHYk8)
