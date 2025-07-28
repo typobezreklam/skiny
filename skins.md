@@ -12,5 +12,5 @@
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=68893bf8&is=6887ea78&hm=d7c42062cd066637fb0778856a7863c1ed6bb7fe57f712ba599fc1ee7f4222e8&)
 
 
-# [priviet 2.0 dt](https://mega.nz/file/tOxTgTrQ#qk7939zxG2bQOmmd2nvKC9rWtK57YNaLq_JNKTJHYk8)
+# [priviet 2.0 dark](https://mega.nz/file/tOxTgTrQ#qk7939zxG2bQOmmd2nvKC9rWtK57YNaLq_JNKTJHYk8)
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500881384177825/image.png?ex=68893a43&is=6887e8c3&hm=477c9d612f53b7ba59c157cec2962a8967aa566c7904b2fadb407187c814d567&)
