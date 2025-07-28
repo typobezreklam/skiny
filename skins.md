@@ -8,7 +8,7 @@
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399504483318235167/image.png?ex=68893d9e&is=6887ec1e&hm=e798113781b7b0f973ff1a2b4da31c8485dba104d7ba415de6a2c7066999c121&)
 
 
-# [priviet 2.0 dt rafis podkrecony edit](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=68893bf8&is=6887ea78&hm=d7c42062cd066637fb0778856a7863c1ed6bb7fe57f712ba599fc1ee7f4222e8&)
+# [priviet 2.0 dt rafis podkrecony edit](https://mega.nz/file/MDRFRYDR#atEuD0eSiCKP51ej1fdRNyhawo969ZmFIG59IK_MQ2Q)
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=68893bf8&is=6887ea78&hm=d7c42062cd066637fb0778856a7863c1ed6bb7fe57f712ba599fc1ee7f4222e8&)
 
 
