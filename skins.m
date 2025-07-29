@@ -20,4 +20,4 @@
 
 
 # [priviet 2.0 tekkito edit](https://mega.nz/file/EWQBwBib#nAp1OOEfUuXRFP20t_FpcTo-Ls9FZet3PxiGXfY4rZc)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500688484204686/image.png?ex=68893a15&is=6887e895&hm=7381b47db4eb2d17e2e793f414d5810c8072aefa53831a8491cbe60780d97dd0&)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500688484204686/image.png?ex=6889e2d5&is=68889155&hm=3a74718e53c14ac98927453071b7a17fdf4c1dd5029976e6067d203f76615e37&)
