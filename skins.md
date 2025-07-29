@@ -14,3 +14,6 @@
 
 # [priviet 2.0 dark](https://mega.nz/file/tOxTgTrQ#qk7939zxG2bQOmmd2nvKC9rWtK57YNaLq_JNKTJHYk8)
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500881384177825/image.png?ex=68893a43&is=6887e8c3&hm=477c9d612f53b7ba59c157cec2962a8967aa566c7904b2fadb407187c814d567&)
+
+# [priviet 2.0 idke trail edit](https://mega.nz/file/IPZikJbI#E4l3RiW69I9hP_YVoIBfj11oHdhnGz6Mi9wecxYc7iM)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399759268395094086/image.png?ex=688a2ae7&is=6888d967&hm=d59ae818a66e977602f0a44f41e0a9e3305e02fe8d35687b6ed13c8fec53ca17&)
