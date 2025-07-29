@@ -1,6 +1,6 @@
 # [typekbezreklam](https://osu.ppy.sh/users/11265621)
   
-# [priviet 2.0 tekkito edit](https://mega.nz/file/tHYhiQra#LXj7OzWMTyTF07DxPpNlgVkQhVqauL0i-qyenyOf9i4)
+# [priviet 2.0 tekkito edit 1.1](https://mega.nz/file/tHYhiQra#LXj7OzWMTyTF07DxPpNlgVkQhVqauL0i-qyenyOf9i4)
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399799653746344108/image.png?ex=688a5084&is=6888ff04&hm=f123494000e4e8d9e0cafe3dc089b95f74dd1e7fbb836d410e0dce4cdaa291b3&)
 
 
