@@ -1,7 +1,7 @@
 # [typekbezreklam](https://osu.ppy.sh/users/11265621)
   
-# [priviet 2.0 tekkito edit](https://mega.nz/file/8XwQRQ5R#Ji61gOLGh9OsXBHYZHlPkMRP0X9HXbDuOcQ-lxaz-J8)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500688484204686/image.png?ex=68893a15&is=6887e895&hm=7381b47db4eb2d17e2e793f414d5810c8072aefa53831a8491cbe60780d97dd0&)
+# [priviet 2.0 tekkito edit](https://mega.nz/file/tHYhiQra#LXj7OzWMTyTF07DxPpNlgVkQhVqauL0i-qyenyOf9i4)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399799653746344108/image.png?ex=688a5084&is=6888ff04&hm=f123494000e4e8d9e0cafe3dc089b95f74dd1e7fbb836d410e0dce4cdaa291b3&)
 
 
 # [priviet 2.0 hyeok edit](https://mega.nz/file/sTonzTaA#vz1I9KcAwhwSV55NXA2hPMlLmmBP6p-GQfPNwq5yYj8)
@@ -17,3 +17,7 @@
 
 # [priviet 2.0 idke trail edit](https://mega.nz/file/IPZikJbI#E4l3RiW69I9hP_YVoIBfj11oHdhnGz6Mi9wecxYc7iM)
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399759268395094086/image.png?ex=688a2ae7&is=6888d967&hm=d59ae818a66e977602f0a44f41e0a9e3305e02fe8d35687b6ed13c8fec53ca17&)
+
+
+# [priviet 2.0 tekkito edit](https://mega.nz/file/8XwQRQ5R#Ji61gOLGh9OsXBHYZHlPkMRP0X9HXbDuOcQ-lxaz-J8)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500688484204686/image.png?ex=68893a15&is=6887e895&hm=7381b47db4eb2d17e2e793f414d5810c8072aefa53831a8491cbe60780d97dd0&)
