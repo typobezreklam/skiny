@@ -5,11 +5,11 @@
 
 
 # [priviet 2.0 hyeok edit](https://mega.nz/file/QD532SRD#_0Yj3JkVsUQw1VSYD8QeqivDVBVsG-Ujg1rUjJ7hmI0)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1399504483318235167/image.png?ex=68893d9e&is=6887ec1e&hm=e798113781b7b0f973ff1a2b4da31c8485dba104d7ba415de6a2c7066999c121&)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399504483318235167/image.png?ex=688f2c5e&is=688ddade&hm=2a1697977517a8469166b7853722b0c026ae1c5cf05cc2fa7e298969387da896&)
 
 
 # [priviet 2.0 dt rafis podkrecony edit](https://mega.nz/file/xK4i2RoT#L6XI74d01fhIOk2kftY0iWArVnKe3UgL0hC6sdUqnHM)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=68893bf8&is=6887ea78&hm=d7c42062cd066637fb0778856a7863c1ed6bb7fe57f712ba599fc1ee7f4222e8&)
+![image](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=688f2ab8&is=688dd938&hm=fd4cf9dfd04c27ff570d5efb0d62b504808f8305cf69b959a9c7924505568f78&)
 
 
 # [priviet 2.0 dark](https://mega.nz/file/tSgl0bxJ#3ehOH0TuDSbUgokqMJXAZEUV3p2CJ87hy6lm6Qb2bSU)
