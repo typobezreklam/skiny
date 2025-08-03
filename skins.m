@@ -1,7 +1,7 @@
 # [typekbezreklam](https://osu.ppy.sh/users/11265621)
   
-# [priviet 2.0 tekkito edit 1.1](https://files.catbox.moe/nsfcse.webp)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1399799653746344108/image.png?ex=688a5084&is=6888ff04&hm=f123494000e4e8d9e0cafe3dc089b95f74dd1e7fbb836d410e0dce4cdaa291b3&)
+# [priviet 2.0 tekkito edit 1.1](https://mega.nz/file/8bQjQKYA#2_lsMs53YoYbCKxVoVn2Ezzv6E7JLGuoaFIR2tNCI-g)
+![image](https://files.catbox.moe/nsfcse.webp)
 
 
 # [priviet 2.0 hyeok edit](https://mega.nz/file/QD532SRD#_0Yj3JkVsUQw1VSYD8QeqivDVBVsG-Ujg1rUjJ7hmI0)
