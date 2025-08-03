@@ -20,4 +20,4 @@
 
 
 # [priviet 1.0 tekkito edit](https://mega.nz/file/RfoiwbDS#9sZNYYDDXTjr5EmAFCMVUTMQzmjr7omJcWdGe5T18BI)
-![image](https://files.catbox.moe/g9a5qf.webp)
+![image](https://files.catbox.moe/ej53af.webp)
