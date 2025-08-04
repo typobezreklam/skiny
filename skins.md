@@ -16,7 +16,7 @@
 ![image](https://cdn.discordapp.com/attachments/945802805212479551/1399500881384177825/image.png?ex=68893a43&is=6887e8c3&hm=477c9d612f53b7ba59c157cec2962a8967aa566c7904b2fadb407187c814d567&)
 
 # [priviet 2.0 idke trail edit](https://mega.nz/file/xOQTDYIa#-asy0xJuVysZxqwC4cSTtXLGWQCvj9JCzN9yhQq_sNE)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1401153827977039962/image.png?ex=688f3db0&is=688dec30&hm=b0c4f21d5024512fdec98152ab5ea31a775baf0a9780b7f2e731cc0e7bb98390&)
+![image](https://files.catbox.moe/f0voki.webp)
 
 
 # [priviet 1.0 tekkito edit](https://mega.nz/file/RfoiwbDS#9sZNYYDDXTjr5EmAFCMVUTMQzmjr7omJcWdGe5T18BI)
