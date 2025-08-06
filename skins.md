@@ -9,7 +9,7 @@
 
 
 # [priviet 2.0 dt rafis podkrecony edit](https://mega.nz/file/xK4i2RoT#L6XI74d01fhIOk2kftY0iWArVnKe3UgL0hC6sdUqnHM)
-![image](https://cdn.discordapp.com/attachments/945802805212479551/1399502715041742929/image.png?ex=688f2ab8&is=688dd938&hm=fd4cf9dfd04c27ff570d5efb0d62b504808f8305cf69b959a9c7924505568f78&)
+![image](https://files.catbox.moe/87teoe.webp)
 
 
 # [priviet 2.0 dark](https://mega.nz/file/tSgl0bxJ#3ehOH0TuDSbUgokqMJXAZEUV3p2CJ87hy6lm6Qb2bSU)
